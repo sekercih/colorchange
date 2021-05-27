@@ -1,1 +1,1 @@
-https://sekercih.github.io/colorchange/
+https://sekercih.github.io/colorchangx/
